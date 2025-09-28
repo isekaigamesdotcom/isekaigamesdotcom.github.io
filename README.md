@@ -1,5 +1,5 @@
 # Isekai Games Portal
 
-This World, Other Worlds, and Our World - Where The Adventure Begins
+This World, Our World, and Other Worlds - Where The Adventure Begins
 
 [https://isekaigames.com](https://isekaigames.com)
